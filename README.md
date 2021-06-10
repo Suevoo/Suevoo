@@ -1,1 +1,1 @@
-SUEVO W
+Ariel nuker suevo w
